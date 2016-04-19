@@ -1,2 +1,2 @@
 # hello-world
-just playing here
+Hi here are som new thoughts about bla
